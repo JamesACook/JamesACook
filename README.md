@@ -5,5 +5,5 @@
 ![code for readme](https://user-images.githubusercontent.com/125384035/218876496-a6c00475-ea9a-48cf-8516-2011f09dfc75.jpg)
 
 
-#### 💬 you can e-mail me @ james.cook@hotmail.co.uk with any queries or to see more examples.
+#### 💬 you can e-mail me @ james.cook@hotmail.co.uk with any queries you have!
 
