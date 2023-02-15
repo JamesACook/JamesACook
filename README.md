@@ -5,6 +5,6 @@
 
 
 
-#### 💬 you can e-mail me @ james.cook@hotmail.co.uk with any queries you have!
+#### 💬 e-mail me @ james.cook@hotmail.co.uk with any queries you have!
 
 
