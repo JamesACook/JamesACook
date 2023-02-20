@@ -7,6 +7,6 @@
 
 
 
-#### 💬 e-mail me @ james.cook@hotmail.co.uk with any queries you have!
+Find me on linked on https://www.linkedin.com/in/jamesandrewcook/
 
 
